@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Paradaraiya
+- 👋 Hi, I’m Assylzat Nuraliyeva
 - 👀 I’m interested in IT
 - 🌱 I’m currently learning UI/UX design
 - 💞️ I’m looking to collaborate on design and coding
